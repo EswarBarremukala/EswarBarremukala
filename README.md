@@ -59,5 +59,5 @@ SSC — CGPA: 10
 ## 📞 Contact Information
 - **Phone:** 7075221181
 - **Email:** eswarbarremukala@gmail.com
-- **LinkedIn:** https://www.linkedin.com/in/eswar-barremukala-351633393
+- **LinkedIn:** www.linkedin.com/in/eswar-barremukala-5b3754393
 - **Location:** Adoni, Kurnool Dist, Andhra Pradesh, India
